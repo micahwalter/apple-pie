@@ -52,7 +52,7 @@ Peal all your apples. You can use any kind of apple you like, but I prefer the m
 
 Mix some cinnamon and sugar together in a bowl. More sugar than cinnamon. It should result in a light brown color. Spread the cinnamon and sugar mix on crust before adding apples. Then add apples and sugar mix in layers until you are all out of apples.
 
-Lay the second crust over top of the pie. Use a fork to squeeze together the two crusts around the edge of the pie plate. Cut off any excess dougg with a knife.
+Lay the second crust over top of the pie. Use a fork to squeeze together the two crusts around the edge of the pie plate. Cut off any excess dough with a knife.
 
 Wash the top crust with the egg using a kitchen brush. Poke some holes in the crust with the fork to let steam out during baking.
 
